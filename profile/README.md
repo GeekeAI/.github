@@ -67,8 +67,8 @@ We believe in the power of innovation, collaboration, and adaptability. As we co
 
 For more information or to collaborate with us, feel free to reach out!
 
-Email: [contact@geeke.org](mailto:contact@geeke.org)
+Email: [contact@geeke.com](mailto:contact@geeke.org)
 
-Website: [www.geeke.org](https://www.geeke.org)
+Website: [www.geeke.com](https://www.geeke.com)
 
 ---
